@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial Intelligence
 - 🌱 I’m currently learning Machine Learning
 - 💞️ I’m looking to collaborate on anything.
-- 📫 How to reach me: email: BenjaminSimba@proton.me
+- 📫 How to reach me: email: BabySimba@proton.me
 - ⚡ Fun fact: A day on Venus is longer than a year on Venus.
 
 <!---
